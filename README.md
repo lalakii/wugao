@@ -40,4 +40,6 @@
 
 + [男子被指鞋面装摄像头偷拍获澄清](http://dzb.hxnews.com/news/gnxw/202306/13/2121763.shtml) - [副本](pic/0009.png)
 
++ [成都地铁1号线，两名女子诬陷一男乘客偷拍](https://www.thepaper.cn/newsDetail_forward_23461428) - [副本](pdf/0001.pdf)
+
 ## 待续...
