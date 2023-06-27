@@ -20,6 +20,8 @@
 
 + [小慧君](https://baijiahao.baidu.com/s?id=1766584875318611398) - [副本](pic/0002.png)
 
++ [艾芬医闹事件](https://static.cdsb.com/micropub/Articles/202306/6c609ca275b92c3bf879738a037b9b41.html) - [副本](pic/0015.png)
+
 ## 2021
 
 + [阿里女员工](https://baike.baidu.com/item/阿里巴巴女员工被侵害事件/58214609) - [副本](pic/0003.png)
